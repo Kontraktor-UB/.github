@@ -1,1 +1,1 @@
-Kontraktor UB
+Kontraktør UB
